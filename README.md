@@ -7,8 +7,8 @@
 
  ㅤ
  
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ **C + H**ㅤㅤㅤㅤㅤㅤㅤㅤ**TOUCH**ㅤㅤㅤㅤ**COMF**
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ **C**ㅤㅤㅤㅤ+ㅤㅤㅤㅤ**H**ㅤㅤㅤㅤㅤㅤㅤㅤ**TOUCH**ㅤㅤㅤㅤ**COMF**
 
 ㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**ANYONE**ㅤㅤㅤㅤ***CAN**ㅤㅤㅤㅤ***INTERACT**.
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**ANYONE**ㅤㅤㅤㅤ***CAN***ㅤㅤㅤㅤ**INTERACT**.
 ![tumblr_16addfa05d4eb55bc220480c49018d9b_710b670f_2048](https://github.com/user-attachments/assets/7e64a613-e572-4b9e-8ad2-3b5ffd3eed9f)
