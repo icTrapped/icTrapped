@@ -1,5 +1,5 @@
 ![tumblr_524d1b96add71d3d1543c24d01bd545c_cdb3a31d_2048](https://github.com/user-attachments/assets/7936be76-752a-49c9-b0fd-ef6ea800aa87)
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ "ㅤㅤㅤ**APRIL**ㅤㅤㅤㅤ**FOOLS**,ㅤㅤㅤㅤ**FOOL**.ㅤㅤㅤ"
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ "ㅤㅤㅤ**APRIL**ㅤㅤㅤㅤ**FOOLS**,ㅤㅤㅤㅤ**FOOL**.ㅤㅤㅤ"
 
 ㅤ
 
@@ -7,8 +7,8 @@
 
  ㅤ
  
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ **C + H**ㅤㅤㅤㅤㅤㅤㅤㅤ**TOUCH**ㅤㅤㅤㅤ**COMF**
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ **C + H**ㅤㅤㅤㅤㅤㅤㅤㅤ**TOUCH**ㅤㅤㅤㅤ**COMF**
 
 ㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**ANYONE**ㅤㅤㅤ**CAN**ㅤㅤㅤ**INTERACT**.
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**ANYONE**ㅤㅤㅤ**CAN**ㅤㅤㅤ**INTERACT**.
 ![tumblr_16addfa05d4eb55bc220480c49018d9b_710b670f_2048](https://github.com/user-attachments/assets/7e64a613-e572-4b9e-8ad2-3b5ffd3eed9f)
