@@ -1,7 +1,6 @@
 <div align="center">
 
 ![image-93aa-gradientmap pro](https://github.com/user-attachments/assets/a51b764c-02b8-4502-b479-4c949eb102ec)
-
 ㅤ
 
 ![image-6c92-gradientmap pro](https://github.com/user-attachments/assets/78c686c9-6098-4eac-81a6-947c29fd1ca7)
@@ -34,7 +33,6 @@
 
 
 ㅤ
-
 ![image-97ce-gradientmap pro](https://github.com/user-attachments/assets/ea49fb08-1950-471c-bccc-e247f940f510)
 
 </div>
